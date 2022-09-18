@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **durga.prasad.e21@nsut.ac.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Wc283O1MP-EEljCYDhs3bnwefJRasPf9/view?usp=sharing](https://drive.google.com/file/d/1Wc283O1MP-EEljCYDhs3bnwefJRasPf9/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1-Kt7pk_NpmRP01vbAuYwEw_kpb7dolM9/view?usp=sharing)
 
 - ⚡ Fun fact **I think i am good leader**
 
